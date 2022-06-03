@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **matias.alejandro.gonzalezl@gmail.com**
 
-- ⚡ Fun fact **I'm a big wrestling fan**
+- ⚡ Fun fact **I'm a big wrestling, videogames (RPG) and anime fan**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
